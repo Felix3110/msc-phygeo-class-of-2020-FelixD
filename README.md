@@ -1,2 +1,2 @@
-# msc-phygeo-class-of-2020-FelixD.
+# msc-phygeo-class-of-2020-FelixD
 Neu
